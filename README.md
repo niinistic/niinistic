@@ -10,7 +10,7 @@
 
 ♡ Falo inglês em nível intermediário.
 
-₊˚⊹♡ Ainda descobrindo qual em área eu gostaria de me especializar.
+₊˚⊹♡ Ainda descobrindo em qual área eu gostaria de me especializar.
 
 
 ![ezgif-19cb353fb3499d](https://github.com/user-attachments/assets/96af0bff-f048-4b64-9a71-82378e4c4f49)
