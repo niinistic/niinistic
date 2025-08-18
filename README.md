@@ -14,10 +14,10 @@
 
 ₊˚⊹♡ Ainda descobrindo em qual área eu gostaria de me especializar.
 
-##
-LinkedIn: https://www.linkedin.com/in/nicole-oliveira-614b6622a/
 
+<img src="https://raw.githubusercontent.com/niinistic/niinistic/output/snake.svg" alt="Snake animation" />
 
+###
 
 ##
 
