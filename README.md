@@ -15,10 +15,6 @@
 ₊˚⊹♡ Ainda descobrindo em qual área eu gostaria de me especializar.
 
 
-<img src="https://raw.githubusercontent.com/niinistic/niinistic/output/snake.svg" alt="Snake animation" />
-
-###
-
 ##
 
 
