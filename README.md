@@ -4,7 +4,7 @@
 ## Olá! Seja bem-vindo! <3
 
 
-<img width="200" height="auto" alt="image" src="https://cdn.discordapp.com/attachments/1287934435186180116/1406765789767405638/Picsart_25-08-17_19-24-50-787.png?ex=68a3a83c&is=68a256bc&hm=7043f83644c189fe8efb4057186ffd463da2a80a52320cdfd2bbfc1e3405ceb3&" />
+<img width="140" height="auto" alt="image" src="https://cdn.discordapp.com/attachments/1287934435186180116/1406765789767405638/Picsart_25-08-17_19-24-50-787.png?ex=68a3a83c&is=68a256bc&hm=7043f83644c189fe8efb4057186ffd463da2a80a52320cdfd2bbfc1e3405ceb3&" />
 
 ۶ৎ Me chamo Nicole, atualmente estou cursando Análise e Desenvolvimento de Sistemas.
 
